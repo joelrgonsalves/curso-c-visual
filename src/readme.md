@@ -1,0 +1,2 @@
+La migraña es una enfermedad neurológica que se manifiestaen un  dolor de cabeza intenso o grave.
+Es extremadamente incapacitante y puede acompañarse de vómitos, intolerancia a la luz y al sonido, etc.
